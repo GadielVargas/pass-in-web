@@ -1,1 +1,1 @@
-![pass-in-web](https://github.com/GadielVargas/pass-in-web/assets/118751677/aab2018e-5c67-48d1-ba15-6bd38b169c1e)
+![pass-in-web-print](https://github.com/GadielVargas/pass-in-web/assets/118751677/d300aee8-8515-43d3-a030-1ca3ce048bcb)
